@@ -1,4 +1,4 @@
-
+top Script for dandy's world is the best dandy's world Script, featuring infinite resources and auto-collect. Safe and powerful for all your needs.
 
 
 
